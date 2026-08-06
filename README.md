@@ -1,4 +1,4 @@
-<div align="center"><img width="736" height="736" alt="1000024496" src="https://github.com/user-attachments/assets/7a7b295a-d2bf-4a58-8ad0-cc4dcbbe009a" />
+<div align="center"><img width="736" height="736" alt="1000024496" src="https://cdn.discordapp.com/attachments/1476948239730213029/1534862753712312401/Untitled429_20260806175613.png?ex=6a75abd4&is=6a745a54&hm=7a541cdb455696dd12242d1c37384a3fd3c0a2ad8795ad2050eaeda65f4ece1e&" />
 
 
 
