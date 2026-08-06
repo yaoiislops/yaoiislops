@@ -5,4 +5,6 @@
 
 ㅤㅤ ㅤ
 ㅤㅤ ㅤ  
-**C+H FREELY**
+${\textsf{\color{#8C8C8C}ʜᴇ/ʜɪᴍ}}$
+ㅤㅤ ㅤ
+${\textsf{\color{#8C8C8C}ᴄ+ʜ ᴘʟꜱ!}}$
